@@ -14,9 +14,6 @@ I HATW SOMEONE NAME IS HAM! OMGF MY STAMPS </333
 
 ![d](https://media.discordapp.net/attachments/1124812862213341346/1138663808118829156/tumblr_pucb1sSHXk1xbgu08o1_100.png?width=123&height=70) ![ㅇ](https://wilardo.crd.co/assets/images/gallery10/c41d2937.jpg?v=a363c8e1)
 
- ![s](https://watermelon.crd.co/assets/images/gallery07/2d99cd5f.jpg?v=ab2f6a73) ![image](https://github.com/wyippee/wyippee/assets/118184209/c3f5d0aa-3f96-4ccf-8c9d-d7dbc07ad7bc) ![d](https://media.discordapp.net/attachments/1124812862213341346/1138649441734250608/821a3990.png?width=123&height=70) ![image](https://github.com/wyippee/wyippee/assets/118184209/1f85027a-410d-4c69-8b29-447a4d3010ed)
-![d](https://pixel.crd.co/assets/images/gallery02/2e21e66d.gif?v=6c9529620)
-
 ![d](https://lifted.crd.co/assets/images/gallery03/e1301be4.jpg?v=540c5116) ![d](https://lifted.crd.co/assets/images/gallery03/1603b7b6.jpg?v=540c5116) ![d](https://lifted.crd.co/assets/images/gallery03/9a5959e5.gif?v=540c5116) ![d](https://lifted.crd.co/assets/images/gallery03/79b7d3fb.jpg?v=540c5116)
 <!--
 **YaOWI33/YaOWI33** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
